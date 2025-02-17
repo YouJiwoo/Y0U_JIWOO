@@ -1,4 +1,4 @@
-# Luckyjenny_git
+# Lucky_Jenny's_Git
 
 #Ewha_womens_university
 
